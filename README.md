@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about Bufos
 - 💞️ I’m looking to collaborate on all-the-bufo
 - 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/Him kid chef BUFO
 - ⚡ Fun fact: I LIKE FOOD
 
 <!---
